@@ -1,2 +1,2 @@
-# Esse é MEU mundo!
+# Esse é MEU mundo! 😎
 Apenas seguindo o tutorial 😍💅✨✨
